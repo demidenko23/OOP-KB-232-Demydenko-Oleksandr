@@ -1,1 +1,0 @@
-# OOP-KB-232-Demydenko-Oleksandr
